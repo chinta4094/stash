@@ -1,1 +1,1 @@
-123 Amar deep Colony
+swamy house 123/1 hanumakonda
